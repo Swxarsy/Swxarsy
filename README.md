@@ -1,0 +1,1 @@
+- Bişi bilmeden geldim .d
